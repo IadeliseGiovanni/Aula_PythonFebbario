@@ -1,2 +1,1 @@
-# Aula_PythonFebbario
-Aula_PythonFebbario
+Iadelise Giovanni @iadelisegiovanni2000@gmail.com
